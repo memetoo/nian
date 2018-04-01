@@ -1,6 +1,6 @@
 # 6点啦起来嗨  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/126408_1419681215.png!dream" style="max-width: 100px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/126408_1419681215.png" style="max-width: 100px; max-height: 800px; width: auto; height: auto" />
 年纪大了缺觉，还是六点起现实一点？
 
 🕊️虫它十言戒🐍：
@@ -19,7 +19,7 @@ memetoo
 <br>
 进展 2823557  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419725454.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419725454.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 挣扎起床，晚上睡不着早上睡不醒…What can I do？  
   
   
@@ -31,7 +31,7 @@ memetoo
   
 进展 2827910  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419787344.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419787344.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 噢不好意思拖这么晚睡，又靠背单词治了下心塞。  
   
 跟自己定了个十年之约，现在是3486天了呢！  
@@ -49,7 +49,7 @@ memetoo
   
 进展 2828372  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419812469.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419812469.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 起床，五点半重启路由扭到了伤腿，还是摁掉了闹钟。  
   
   
@@ -61,7 +61,7 @@ memetoo
   
 进展 2832040  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419867788.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419867788.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 NCIS S12 E10…McGee的圣诞节太悲伤了啊  
   
 奈特！  
@@ -75,7 +75,7 @@ NCIS S12 E10…McGee的圣诞节太悲伤了啊
   
 进展 2833263  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419900710.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419900710.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 流鼻血处理中…叹气，为什么我就是无法甩掉颓唐……  
   
 希望今天加油工作！  
@@ -89,7 +89,7 @@ NCIS S12 E10…McGee的圣诞节太悲伤了啊
   
 进展 2836456  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419951561.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419951561.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 打卡睡觉，今天总算有了工作效率，thx V！  
   
 *･゜ﾟ･*:.｡..｡.:*･ #039;(*ﾟ▽ﾟ*) #039;･*:.｡. .｡.:*･゜ﾟ･*  
@@ -105,7 +105,7 @@ NCIS S12 E10…McGee的圣诞节太悲伤了啊
   
 进展 2838092  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419984756.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1419984756.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 今天有早起，啦啦啦！  
   
 认真完成扇贝任务，所以图片要长长长！  
@@ -121,7 +121,7 @@ NCIS S12 E10…McGee的圣诞节太悲伤了啊
   
 进展 2842775  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420045942.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420045942.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 睡晚了又……  
 新年快乐！  
   
@@ -134,7 +134,7 @@ NCIS S12 E10…McGee的圣诞节太悲伤了啊
   
 进展 2843668  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420072220.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420072220.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 起床起床背单词啦！  
   
   
@@ -146,7 +146,7 @@ NCIS S12 E10…McGee的圣诞节太悲伤了啊
   
 进展 2848821  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420134714.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420134714.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 SPN真的不太有吸引力啦，虽然萌过Cass  
   
   
@@ -158,7 +158,7 @@ SPN真的不太有吸引力啦，虽然萌过Cass
   
 进展 2849510  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420162617.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420162617.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 起床，好懒……  
   
   
@@ -170,7 +170,7 @@ SPN真的不太有吸引力啦，虽然萌过Cass
   
 进展 2854930  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420219308.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420219308.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 看完红色剧透睡觉！  
   
   
@@ -182,7 +182,7 @@ SPN真的不太有吸引力啦，虽然萌过Cass
   
 进展 2856103  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420250395.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420250395.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 起床！  
   
   
@@ -194,7 +194,7 @@ SPN真的不太有吸引力啦，虽然萌过Cass
   
 进展 2862964  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420297077.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420297077.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 ✅1，2，3，4 (Done  
 ❎5 (不想动  
   
@@ -209,7 +209,7 @@ SPN真的不太有吸引力啦，虽然萌过Cass
   
 进展 2866082  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420331057.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420331057.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 休养的最后一天了，起来吧！  
   
   
@@ -221,7 +221,7 @@ SPN真的不太有吸引力啦，虽然萌过Cass
   
 进展 2873370  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420382982.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420382982.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 ✅ 1、2、3、4 Done  
 ❎ 5 (喜新厌旧啊  
   
@@ -236,7 +236,7 @@ SPN真的不太有吸引力啦，虽然萌过Cass
   
 进展 2876730  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420422782.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420422782.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 洗漱完毕出门  
   
   
@@ -249,7 +249,7 @@ SPN真的不太有吸引力啦，虽然萌过Cass
   
 进展 2884695  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420470872.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420470872.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 Lay out 花费  
   
 今天没有玩德语和认真阅读，日语进度依然找不到…  
@@ -263,7 +263,7 @@ Lay out 花费
   
 进展 2888529  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420511380.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420511380.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 今天大概又拖到了八点🕗起……五点半🕠的闹钟完全没有作用啊…还是有一点，纠结着又入梦了，慢慢来！  
   
 最后两个不重样的名额，给老师和公主啦  
@@ -278,7 +278,7 @@ Lay out 花费
   
 进展 2895668  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420558872.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420558872.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 Mädchen 是中性……满分太难挣，中性阴性阳性果然没那么容易记清楚…  
 今天日语依然没进度，阅读质量一般，德语duolinguo刷到目标（虽然还是在复习（读音才不容易好吗！  
   
@@ -293,7 +293,7 @@ Mädchen 是中性……满分太难挣，中性阴性阳性果然没那么容�
   
 进展 2897473  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420580174.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420580174.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 ✌️耶起床！  
   
   
@@ -305,7 +305,7 @@ Mädchen 是中性……满分太难挣，中性阴性阳性果然没那么容�
   
 进展 2906622  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420646953.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420646953.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 晚睡了…  
 阅读质量还是不行，其余都有进展  
 Mac mini升级咯！  
@@ -321,7 +321,7 @@ Mac mini升级咯！
   
 进展 2908364  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420675388.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420675388.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 所以晚起了Sad  
 Vorbei ist Vorbei……  
   
@@ -334,7 +334,7 @@ Vorbei ist Vorbei……
   
 进展 2916126  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420732066.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420732066.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 睡觉😪又晚了  
   
   
@@ -346,7 +346,7 @@ Vorbei ist Vorbei……
   
 进展 2917718  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420753398.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420753398.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 挣扎起床！  
   
 配图For S10E05 Destile的糖〔捧心〕  
@@ -360,7 +360,7 @@ Vorbei ist Vorbei……
   
 进展 2925739  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420819426.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420819426.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 20:00困死于是睡到23:00起来完成了duolingo daily track…  
 明天也要早起！嗯！  
 奈特！  
@@ -374,7 +374,7 @@ Vorbei ist Vorbei……
   
 进展 2927215  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420841319.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420841319.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 5:33起  
 然后哼着少年拖延…有病啦  
   
@@ -387,7 +387,7 @@ Vorbei ist Vorbei……
   
 进展 2936244  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420912047.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420912047.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 这么晚睡……  
 把SPN跟到了最新进度、看你桶狗屎运加下半场XJBT蜷取了三分（马尔科维奇这场能卖不少安利吧？还顺便看了下萝卜的Judge，以及终于找到某人找了大半天的资料单据……  
 搬家到现在我依然不想动手整理各个角落真是、也许只有我妈到来前夕才能给我动力了！因为不理好被她动了就真的可能再也找不到了（喂  
@@ -403,7 +403,7 @@ Der Apfel 和 Den Apfel难道是单复数？
   
 进展 2937480  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420939987.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420939987.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 晚起也是自然的……Sad  
   
 某人终于开口说心里不开心，我有点释然，看着倒计时的数字在想，那一天到来会是个什么场景？但是首先，我对我能否存活到那天还是充满了怀疑，还是得努力，对吧？  
@@ -419,7 +419,7 @@ Der Apfel 和 Den Apfel难道是单复数？
   
 进展 2944838  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420991475.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1420991475.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 Ich habe Schwein :-P  
 总是想读成Schweini呢XD  
   
@@ -436,7 +436,7 @@ Duolinguo的日英还是蛮坑爹的，估计中英也差不多…还是比较�
   
 进展 2946701  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421020219.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421020219.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 没起来，还是得十一点前睡下！  
   
   
@@ -448,7 +448,7 @@ Duolinguo的日英还是蛮坑爹的，估计中英也差不多…还是比较�
   
 进展 2953982  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421076104.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421076104.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 晚睡Again…觉得晚上真的很难有效率，不如早点睡再提早点起？还记得十点睡四点起计划么？  
 Tschüsse！  
   
@@ -461,7 +461,7 @@ Tschüsse！
   
 进展 2956061  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421100838.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421100838.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 哭泣，眼一闭一睁半小时就过去了！  
   
 抓紧时间！  
@@ -475,7 +475,7 @@ Tschüsse！
   
 进展 2962580  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421159671.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421159671.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 今天提早一眯眯睡，想到如果四点起也许刚好合适西甲时间就充满动力呢！  
   
 Gute Nacht!  
@@ -490,7 +490,7 @@ Gute Nacht!
   
 进展 2965415  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421179601.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421179601.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 お早う！  
 Guten Tag!  
   
@@ -505,7 +505,7 @@ Guten Tag!
   
 进展 2971883  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421246031.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421246031.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 再刷微博就断手好吗？  
 快滚去睡！  
   
@@ -518,7 +518,7 @@ Guten Tag!
   
 进展 2974796  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421268937.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421268937.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 睡过了一小时，苦瓜脸  
   
   
@@ -530,7 +530,7 @@ Guten Tag!
   
 进展 2980907  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421332244.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421332244.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 头发还没干……  
 德语发音课快上完了，觉得比我想的要难啦-_-#  
   
@@ -543,7 +543,7 @@ Guten Tag!
   
 进展 2983889  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421356481.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421356481.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 好像必须多睡这一小时呢……  
   
   
@@ -555,7 +555,7 @@ Guten Tag!
   
 进展 2989620  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421418305.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421418305.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 决定再听一遍德语语音课……因为真的记不住  
   
 周末也要加油噢！  
@@ -569,7 +569,7 @@ Guten Tag!
   
 进展 2992527  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421439321.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421439321.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 起床！  
 其实是被混乱的梦烦醒了……  
   
@@ -582,7 +582,7 @@ Guten Tag!
   
 进展 3000404  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421513078.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421513078.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 买买买导致忘了养植物……断更……还好扇贝刷到了  
   
   
@@ -594,7 +594,7 @@ Guten Tag!
   
 进展 3004576  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421632332.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421632332.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 累趴下于是九点🕘才起  
   
   
@@ -606,7 +606,7 @@ Guten Tag!
   
 进展 3008941  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421599304.jpg!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421599304.jpg" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 晚安  
   
   
@@ -618,7 +618,7 @@ Guten Tag!
   
 进展 3011045  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421637427.jpg!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421637427.jpg" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 睡着起不来，八点才不得不勉力爬起，又开始赖着碎碎念不想上班不想上班不想上班了  
   
 然后路上也没有撸单词  
@@ -640,7 +640,7 @@ Guten Tag!
   
 进展 3016036  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421680173.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421680173.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 悲伤的晚睡  
   
   
@@ -652,7 +652,7 @@ Guten Tag!
   
 进展 3018641  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421712497.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421712497.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 睡不醒了  
   
   
@@ -664,7 +664,7 @@ Guten Tag!
   
 进展 3025137  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421766925.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421766925.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 晚睡晚安  
   
   
@@ -676,7 +676,7 @@ Guten Tag!
   
 进展 3027507  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421799458.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421799458.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 七点起然后洗澡🛀  
   
 看来要调整计划了  
@@ -690,7 +690,7 @@ Guten Tag!
   
 进展 3034011  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421853840.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421853840.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 改计划睡觉  
   
   
@@ -702,7 +702,7 @@ Guten Tag!
   
 进展 3036273  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421883637.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421883637.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 痛苦扭脸  
   
   
@@ -714,7 +714,7 @@ Guten Tag!
   
 进展 3045143  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421972144.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421972144.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 补：昨晚十一点半睡  
   
   
@@ -726,7 +726,7 @@ Guten Tag!
   
 进展 3045152  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421972249.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1421972249.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 赖床so easy  
   
   
@@ -738,7 +738,7 @@ Guten Tag!
   
 进展 3050873  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422025901.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422025901.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 晚安  
   
   
@@ -750,7 +750,7 @@ Guten Tag!
   
 进展 3053317  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422058107.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422058107.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 The logic was solid…  
 起床撸了下听力和阅读  
   
@@ -763,7 +763,7 @@ The logic was solid…
   
 进展 3060406  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422117152.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422117152.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 没忍住去翻了弃用的微博，美好的回忆，疯过爱过的瞬间，心碎到补不回来的节点。就是在唱“那么疯癫过那么珍惜过那么动地惊天爱恋过”，憎恨现实木已成舟但仍无悔意。虽然四年了还没想通透，可是爱就是爱，于我而言不会轻易更改更不会说收就收回，所以以后的路我还是会，坚定的与他们同行。  
 然后默默想说，内田選手的饭果然和弟弟自己一样甜蜜温暖啊(●°u°●)​ 」  
   
@@ -778,7 +778,7 @@ The logic was solid…
   
 进展 3062527  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422154916.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422154916.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 起床么么哒  
   
   
@@ -790,7 +790,7 @@ The logic was solid…
   
 进展 3069182  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422203709.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1422203709.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 🔚  
 告别Timelogger！  
 重回Lumen。  
@@ -868,7 +868,7 @@ Shanbay 06:00 ~ 07:17
   
 进展 4278248  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1433341842.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1433341842.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 为了期盼死胖子大心脏挑战真马，我加入了MOOC连续听TED💯天的挑战！（并没有联系  
   
   
@@ -909,7 +909,7 @@ http://xw.qq.com/cul/20150404020974
   
 进展 5399595  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1439220878.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_1439220878.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 MOOC第二关达成奖励！居然能拼完哦也！  
   
   
@@ -1223,7 +1223,7 @@ depressed
   
 进展 12069671  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14535625320.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14535625320.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 时差混打卡不易，截图留念👋  
   
   
@@ -1261,7 +1261,7 @@ depressed
   
 进展 12201956  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14539311340.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14539311340.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 啦啦啦  
   
 -5:45  
@@ -1419,9 +1419,9 @@ Appearing grim and ashen after my plan failed again……
   
 进展 18328591  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14768051320.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14768051321.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14768051332.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14768051320.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14768051321.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14768051332.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 一个半小时前我就该滚去睡了的TAT  
   
   
@@ -1466,7 +1466,7 @@ Appearing grim and ashen after my plan failed again……
   
 进展 20376273  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14861798930.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14861798930.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 http://time.com/4659015/roger-federer-interview-tennis/  
 共勉！  
   
@@ -1494,7 +1494,7 @@ http://time.com/4659015/roger-federer-interview-tennis/
   
 进展 21132518  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14894152350.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_14894152350.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 理想应该是各自再提高2h  
   
   
@@ -1517,7 +1517,7 @@ http://time.com/4659015/roger-federer-interview-tennis/
   
 进展 26583583  
   
-<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_15149901360.png!large" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
+<img src="https://github.com/memetoo/nian/raw/master/image/2WakeUp/process/126408_15149901360.png" style="max-width: 500px; max-height: 800px; width: auto; height: auto" />
 唔……  
 目标316，揉眼睛👀  
   
